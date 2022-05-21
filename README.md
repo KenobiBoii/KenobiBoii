@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KenobiBoii
-- 👀 I’m interested in programming,graphic design,web development & gmae development.
+- 👀 I’m interested in programming,graphic design,web development & game development.
 - 🌱 I’m currently learning Computer Science.
 - 💞️ I’m looking to collaborate on ...(NOT YET).
 - 📫 You can reach me at instagram @KNOBI_BOII
